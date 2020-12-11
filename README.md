@@ -1,0 +1,1 @@
+# ComputerGrafika-3LabaratornaR-na-40
